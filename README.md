@@ -1,2 +1,6 @@
 # XXXTENTACION
-I am a huge fan of XXXTENTACION. so i made a small website on tribute of him. He is an American rapper . He made many songs out of that i had some collections .
+!IMPORTANT
+open this website only with zoom 110% (Recommended)
+just contol + scroll up for zoom in website
+Thank you
+
